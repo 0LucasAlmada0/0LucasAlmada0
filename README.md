@@ -1,4 +1,4 @@
-# Are you stalking me? It's ok. Welcome! :)
+# Are you stalking me? It's ok. Welcome! ✋
 
 ## Contatos!
 
